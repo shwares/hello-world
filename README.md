@@ -2,5 +2,5 @@
 trying github
 
 
-Hi me!
-You are the most inteligent dude in the earh.
+Hi there!
+never stop trying because you don't know what is hiding for you.
